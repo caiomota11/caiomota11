@@ -7,7 +7,7 @@
 
 - 💬 Me pergunte sobre **Power Bi, Excel e SQL**
 
-- 📫 Você me acha através do e-mail **caiosouzam11@gmail.com**
+- 📫 Você me acha através do e-mail **caiosouzamt@gmail.com**
 
 - 📄 Conheça minhas experiências [www.linkedin.com/in/caio-mota-315a30285](www.linkedin.com/in/caio-mota-315a30285)
 
